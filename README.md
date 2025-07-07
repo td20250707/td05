@@ -15,4 +15,4 @@
 在选择平台时，重点考虑平台的合法性、安全性、更新频率以及资源质量。优质平台会定期更新影片，确保提供高清内容并流畅播放。
 同时，保护个人隐私同样重要，避免在不安全的站点输入个人信息。总之，通过选择合适的正规平台，你可以轻松享受日本AV免费资源，确保安全、优质的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/td20250707/td05 ）</span>
